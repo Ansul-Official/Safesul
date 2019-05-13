@@ -2,7 +2,7 @@
 =============================================================
  Safesul - [Official Website](https://safesul.blogspot.com/) 
 =============================================================
- Weshpo - [Official Safelink](https://weshpo.blogspot.com/)  
+ Weshpo - [Official Website](https://weshpo.blogspot.com/)  
 =============================================================
  Owner: [Ansul](https://pinterest.com/ansul_flash/)          
 -------------------------------------------------------------
